@@ -10,9 +10,9 @@ Quite intrigued by the field of Data Science , wanted to pursue it .
 
 💬 Ask me about: politics,random facts , new technologies , stocks psychological stuff , theraphy metaphysical world , Talk me about how world was formed i would love it .
 
-📫 Reach me at:
+📫 Reach me at: Right now in Mars so not reachable .
 
-👾 Hobbies:  📷 Photography, 👨‍🍳 Cooking, ✨ Stargazing ,👯 traveling
+👾 Hobbies:  📷 Photography, 👨‍🍳 Cooking, ✨ Stargazing ,👯 travelling
 
 ⚡ Fun fact: "I turn coffee into code, and sometimes into bugs."
 
