@@ -1,5 +1,5 @@
 Hello there 👋
-I am a professionl currently @ WNS Global Services , Bangalore, working as Enterprise Content Professional  . I am currently the Senior Software Developer working on Process automation .
+I am currently the Senior Software Developer working on Process automation .
 Quite intrigued by the field of Data Science , wanted to pursue it .
 
 🔭 I’m currently working on: Process Automation of Insurance Clients by providing them solutions to cater the approach of manual dealing to automation through various tools
